@@ -1,0 +1,1 @@
+Aun estoy buscando las capturas de la practica anterior a la del 21/09/2026, seguramente esten en algun lugar... espero
